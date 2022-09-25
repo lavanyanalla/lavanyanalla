@@ -6,4 +6,3 @@
 - 🤔 I’m looking for help with ideally displaying the data science results on a website
 - 💬 Ask me anything regarding data science related and happy to help you out
 - 😄 Pronouns: She/Her
--->
