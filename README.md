@@ -6,3 +6,11 @@
 - 🤔 I’m looking for help with ideally displaying the data science results on a website
 - 💬 Ask me anything regarding data science related and happy to help you out
 - 😄 Pronouns: She/Her
+
+
+
+
+
+Contact me on:
+LinkedIn: https://www.linkedin.com/in/lavanya-nalla-20319189/
+Email: lavanyanalla1206@gmail.com
